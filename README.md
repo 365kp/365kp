@@ -1,8 +1,8 @@
 # 365kp 最新地址发布 
-## 导 航 永 久 域 名HttpS://www.2748kp.vip
-## ⭐️ 👉 最新地址 ：https://www.2750kp.vip
-## ⭐️ 👉 备用地址 ：https://www.2751kp.vip
+## 导 航 永 久 域 名HttpS://www.2803kp.vip
+## ⭐️ 👉 最新地址 ：https://www.2804kp.vip
+## ⭐️ 👉 备用地址 ：https://www.2805kp.vip
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
 ### 📧 邮箱联系方式: 365kp2020@gmail.com （发送任意内容获取最新地址）
-### 这里有你想找的.365导航最新地址:https://www.2752kp.vip
+### 这里有你想找的.365导航最新地址:https://www.2806kp.vip
